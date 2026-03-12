@@ -1,6 +1,6 @@
 on Second thought...
 
-Contact Me: https://github.com/mikemasam/mikemasam/issues/new
+Contact Me: info@masamtechnologies.com
 
 
 More...
